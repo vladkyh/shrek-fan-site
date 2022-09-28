@@ -1,1 +1,1 @@
-# shrek-fan-syte (first syte)
+# shrek-fan-site (first syte)
